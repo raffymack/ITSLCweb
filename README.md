@@ -7,4 +7,4 @@ The opportunities and resources at UTD for us are actually quite useful, yet nob
 This project is meant to change that.
 
 Best,
-Alma
+raffymack
